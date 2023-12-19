@@ -1,5 +1,5 @@
-Situpihku.ee is a joke that me and my friends came up with and I decided to make it a reality
+Situpihku.ee on nali mille mina ja mu sõbrad välja mõtlesime ning ma otsustasin muuta selle reaalsuseks
 
-Not sure that image is the origin of the joke but I don't really care
+Ma ei ole kindel et see pilt on nalja originaal päritolu aga mind eriti ei huvita
 
 https://www.youtube.com/watch?v=qDlxdUETidc
